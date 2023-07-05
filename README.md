@@ -16,4 +16,3 @@ Here are some ideas to get you started:
 -->
 - INTP-T
 - Chinese & English
-- Looking for a job
