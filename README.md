@@ -14,6 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-INTP-T
-Chinese & English
-Looking for a job
+- INTP-T
+- Chinese & English
+- Looking for a job
